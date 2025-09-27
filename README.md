@@ -4,10 +4,10 @@
 <br>        　
 <br>
 
-　 　　<b>strawpage        　[atabook](https://pseudocidalist.atabook.org/)        　prnspage</b><br>
+　  　<b>strawpage        　[atabook](https://pseudocidalist.atabook.org/)        　[prnspage](https://en.pronouns.page/@pseudocidalist)</b><br>
     <br>
       
-　　　　mercuro　ദ　<b>꒷꒦</b>　he they it<br>
+　　　　mercuro　　　<i>or</i>　　atsushi<br>
     　　　　atsushi fictkin 　taken　　13<br>
         <br>
 　　　　yes i edit imgs with my hcs lol
