@@ -10,5 +10,6 @@
 　　　　mercuro　　　　atsushi　　<i>or</i>　　sigma<br>
     　　　　atsushi/sigma fictkin　　 　taken　　13<br>
         <br>
-　　　　　　　yes i edit imgs with my hcs lol
+　　　　　　　yes i edit imgs with my hcs lol <br>
+       　　　 　i often mirror personalities n block freely
   
